@@ -1,2 +1,5 @@
-# novellak
-Novellák
+# Novellák
+
+---
+
+copyright laws apply
